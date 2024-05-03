@@ -1,0 +1,2 @@
+# Richie
+learning and fun
